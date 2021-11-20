@@ -1,12 +1,1 @@
-AL ARAB MEDICAL LABORATORIES
-
-Name: HUSSEIN ALI MOHAMMAD SHATNAWI
-
-ID Number: p720277
-
-Phone No: +966552679618 
-
-Test Result: Negative
-
-Reporting Time: 2021-11-24 09:19:35
 
